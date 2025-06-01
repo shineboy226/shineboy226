@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming 
 - 🌱 I’m currently learning cyber security 
 - 💞️ I’m looking to collaborate on networking and cyber security 
-- 📫 How to reach me sylvestrezongo7@gmail.com
+- 📫 How to reach me zkshine@proton.me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
